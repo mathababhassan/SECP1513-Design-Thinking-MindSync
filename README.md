@@ -1,0 +1,1 @@
+# SECP1513-Design-Thinking-MindSync
